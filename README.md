@@ -1,4 +1,4 @@
-# 💫 About Me:
+# 💫 About Us:
 💡 We're currently working on — building powerful tools for business automation.<br>🪁 We're looking to collaborate on — innovative web development.<br>🎓 We're currently learning — cutting-edge technologies to enhance our platforms.<br>📞 Ask us about — custom web solutions and workflow automation.<br><br>🚀 Transforming businesses through smart automation.
 
 
